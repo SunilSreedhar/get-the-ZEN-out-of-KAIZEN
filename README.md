@@ -5,10 +5,10 @@ So what is Kaizen? Kaizen represents our efforts to change from our current stat
 
 Kaizen doesn’t happen in a vacuum. There should be a need – a desire to improve. A sentence that captures that need is a great starting point for a Kaizen event.
 
-You do not need to be a CEO to sponsor a Kaizen event – any supervisor or team lead can make this happen. It doesn’t need much resources, expect for the time & effort of team members.
+You do not need to be a CEO to sponsor a Kaizen event – any supervisor or team lead can make this happen. It doesn’t need much resources, except for the time & effort of team members.
 
 Holding a Kaizen event involves a few simple steps. See file 'Simplified Kaizen event' 
 
-Remember – Kaizen is about short steps to improve & get to a better state. Trying to get everything accomplished at the first go is the biggest bane of a Kaizen event. Topics that will help improve from your current state – but which requires longer time; large investment or significant effort – these will come up during your brainstorming sessions. But instead of spinning your wheel to get the toughest stuff done, keep them in a parking lot. And focus on the low hanging fruits.
+Remember – Kaizen is about short steps to improve & get to a better state. Trying to get everything accomplished at the first go is the biggest bane of a Kaizen event. Topics that will help improve from your current state – but which requires longer time; large investment or significant effort – these will come up during your brainstorming sessions. But instead of spinning your wheel to get the toughest stuff done, keep them in a parking lot. And focus on tuning the engine, rather than changing the engine!
 
-Keep it simple, and your Kaizen event will be a success!
+Keep your Kaizen event simple and you will find the organizational Zen you are looking for!
